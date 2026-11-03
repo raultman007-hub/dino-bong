@@ -1,2 +1,1 @@
-# dino-bong
-apenas um bongo cat com um dino que voa com a seta para cima
+VOCE DEVE UMA COXINHA PARA QUEM TE ENVIOU ISSO E VOCE LEU ISSO SE FERROU ;]
